@@ -1,0 +1,4 @@
+---
+title: Welcome!
+---
+Hi, I'm **[[Ishi]]**, and this is where I share my **[[Interests]]**. I start with reviews of **[[Movies]]**, **[[TV Shows]]**, **[[Anime & Cartoons]]**, and **[[Books]]**, alongside my current **[[Project Ideas]]** and the **[[Music]]** I'm listening to these days. I also spend time gathering published literature on **[[Queer Topics]]** and **[[Technology]]**. This site is used further to showcase my **[[Gaming Library]]**. I'm also challenging myself to start posting my own ==non-peer-reviewed== work on **[[Physics]]** and **[[Mathematics]]** (*Silly*, I know) —stay tuned for that *student-led* content! Thanks for visiting.
